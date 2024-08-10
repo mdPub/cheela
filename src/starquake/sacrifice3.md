@@ -1,0 +1,18 @@
+## 07:15:16 GMT TUESDAY 21 JUNE 2050
+Qui-Qui was called to the communicator by one of the scribes, Quick-Writer.
+
+"I am still copying a section of a maintenance manual for auxiliary power generators." Quick-Writer told Qui-Qui when she arrived at the flyer. "They inserted a message to you a few methturns ago asking that you come."
+
+Qui-Qui waited while Quick-Writer finished writing down the last words of the maintenance manual on the scroll in his neat script from the dictation 406 kilometers above. Quick-Writer then activated the video link. Some diagrams appeared on the screen. He copied them quickly, for the video link was extremely wasteful of energy. As soon as he was done, the link was switched back to audio only. There was a pause, then Cliff-Web came on the link.
+
+"Our new Space Council has come to a decision," said Cliff-Web. "We feel that it is now time for you to go to the West Pole and undergo rejuvenation. Now, I know what you are probably thinking---that Zero-Gauss should be the one to go, since she is older. The problem with that is the rejuvenation robot has been unable to get more than one enzyme machine going. If we send Zero-Gauss now, then you can't go for some 36 greats. By then you would be close to 90 greats old and might flow before you could be rejuvenated. We decided we couldn't afford to lose you. You are the only one with the mixture of drive, determination, optimism, and charisma that is needed to keep the surface younglings concentrating on our joint goal, reunification of the clans of Egg. The vote was 288 to 1.  I needn't tell you who the 'one' was. As soon as you can, you are to travel to the West Pole, undergo rejuvenation, then return bringing the rejuvenation robot and the enzyme machine. The robot will be useful in getting some power generators running at Bright's Heaven and possibly repairing some of the other equipment."
+
+Qui-Qui acknowledged the message, then turned the communications link back to Quick-Writer. He started writing again as the dictation continued.
+
+It took a few turns for Qui-Qui to get things organized so that she could be gone the half-great it would take for her to undergo rejuvenation. One of the engineering students, Coulomb-Force, removed the communicator and an accumulator from the flyer so the education of the classes could continue.
+
+Zero-Gauss was relieved that it wasn't she that had been chosen for rejuvenation, for she wanted nothing more than to be with her little ones. Now that there were adults to help take care of the older hatchlings and run the creche-classes, she had nothing to do but hatch eggs and tell stories of the old days before the starquake.
+
+As the flyer carrying Qui-Qui zoomed down the old road toward the West Pole, it passed by a large herd of food Slinks. Speckle-Top was with the herd, teaching her herding class. Everyone in the class had speckles and at least one pink eye. She was teaching them things that were not found in the textbooks, like how to look at an animal with your special pink eyes and tell where it hurt, and how to approach an animal so that it would think you were a friend.
+
+As Speckle-Top watched the flyer pass, an old worry began nagging her brain-knot. Every turn they came closer to fixing one of those gravity machines they kept talking about. Then down would come the spacers and with them their laws. Then after that would come the clankers and their lashes. Speckle-Top didn't want the spacers to come; she liked things the way they were.

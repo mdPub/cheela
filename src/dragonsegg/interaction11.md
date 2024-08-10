@@ -1,0 +1,28 @@
+## 22:30:12.9 GMT MONDAY 20 JUNE 2050
+"She is right on the time line," Clear-Thinker mused to himself as he observed the computer-generated image of Amalita taken the previous turn and compared it with those taken a few turns previously. The enlarged image of the seat belt showed it was coming apart. Now if she could turn around once while she fell to the window, they could get some high resolution, three-dimensional X-ray images that made so much more sense to their computers than the book-oriented, flat diagrams they had obtained from the human physiology textbooks.
+
+In the following turns the crew members watched as Amalita's body ponderously fell through the air toward the viewing port, turning slowly as it came. Clear-Thinker kept the X-ray illuminators off most of the time, to keep the radiation dose on his human friend down to a minimum. At times calculated by the computer, the X-ray illuminators would flash on, and another snapshot of the human body in motion was taken. By the time Amalita's body was approaching the port, the computer had built up a detailed three-dimensional model of her body. Now the illuminators were brought in to focus on certain portions of her body as the scientists called for more detailed data on the glands and the corrugation patterns in the brain. The data they were collecting would keep generations of students busy.
+
+As Amalita's hands and feet were contacting the viewing port glass and her body started to bounce back, one of the human-medicine specialists on the crew came up to Clear-Thinker and put down a computer-generated picture for him to scan. As Clear-Thinker flowed onto the pad and tasted the picture, the specialist said, "That is a closeup of Amalita's left breast. Fortunately she was not wearing a brassiere so that when she landed on the window, her breasts came forward and we were able to get a highly detailed image of the entire mammary gland complex. The thing that concerns us is the anomalous region right at the center of that diagram. We are sure that it is a small group of cancer cells. They are still too small to be seen by human X-ray machines, but it is our professional judgment that they are definitely malignant."
+
+"Well, it looks as if we will be able to repay Amalita for her performance," Clear-Thinker said. "Prepare a picture that the human doctors can understand and we will send it to Amalita along with a warning of what we found."
+
+The specialist replied, "We had already planned to do that, but we are all concerned about the time it will take. It will be a week before the Dragon Slayer leaves this orbit and takes Amalita and the rest of the crew back up to the mother ship, St. George. In that week, the cancer could grow and start sending out seeds to contaminate the rest of her body. We had another idea that we wanted to talk to you about."
+
+Clear-Thinker flowed off the pad, "What is your proposal?"
+
+"Now---you must realize that what we are about to suggest is against all normal human and cheela standards of ethics. All the human-physiology specialists here, along with many experts on human psychology, medicine and law back on Egg have argued back and forth for the last two turns. There has been a general consensus, although not unanimous by any means, and it was decided to bring it to you for your approval."
+
+Clear-Thinker waited patiently while the specialist worked her way through the circumlocutious argument.
+
+"The consensus is that because of the high malignancy potential of this growth, and the time it will take Amalita to get to a human doctor, we should treat the cancer now, even though we do not have time to get her permission first."
+
+Finally it was out, and Clear-Thinker could understand why it had taken the specialist so much time to come to the point. She was right. By the time the slow-thinking Amalita had been informed of her problem, and had made the decision whether or not to let them try to treat her, the expedition would have had to return to Egg. He also realized that the specialists would not have made their recommendation unless they were sure that Amalita had a serious problem that needed immediate treatment.
+
+"Go ahead," Clear-Thinker quickly replied. "What do you need?"
+
+"We will want to modify one of the X-ray illuminators to increase its frequency and power output," she said. "Running it at a high power level will burn it out quickly, so it will no longer be available for general illumination, but if we do a careful scan, the focused beam of X-rays should kill the cancer cells with only minimal damage to the rest of the breast."
+
+"We have plenty of illuminators," Clear-Thinker said. "Check with the camera crew to find out which one they can spare, and proceed whenever you are ready."
+
+The specialist gathered a crew and soon a modified X-ray illuminator with a large focusing mirror and a high-intensity power source moved up to the window of the viewing port. The computer first aligned the coordinates of the focal point of the illuminator with the calculated position of the cancer deep within the slowly moving breast. Then burst after burst of high intensity X-rays shot out from the illuminator as it was slowly moved back and forth in wide arcs about the focal point buried deep within Amalita. The cancer shriveled and died, while the skin at the surface of the breast started to turn pink---as if it had gotten too much sun at the beach.

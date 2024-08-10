@@ -1,0 +1,18 @@
+## 06:40:10 GMT TUESDAY 21 JUNE 2050
+Amalita closed down her console and floated over to a hatch in the wall next to the console. She looked through the thick glass of the tiny port into the interior of the high-gravity protection tank. The insides of the small, one-meter diameter sphere was empty except for a tiny split-screen video console set in the inner wall. In the walls of the tanks were banks of sound generators that produced pressure waves to counteract the gravitational tidal forces they would experience once they had left the haven of the size dense masses that danced in a ring around their spacecraft. Amalita pushed buttons that emptied the air from the tank and filled it with incompressible water. A touch on the controls and the sound generators sang their protective cloak into the chamber. In the exact center of the tank was a tiny check sphere pinioned by the sound forces. She increased the intensity of the sound pulses and waited until the tiny ball glowed a brilliant green. Satisfied that the tank was operational, Amalita punched for a purge and restart, then went around the central column to check out the next tank. 
+
+As Amalita left, Seiko came to a halt in front of the tank and started taking off her clothes. She stripped to a bra and briefs, pulled a wetsuit from the locker below the hatch door, and slid her pale body smoothly into the suit, the underwater breathing mask floating quietly above her head in the low gravity. Amalita paused in he check-out of the adjacent tank, looked down at her blouse, blushed, and dove down the passageway to her private locker. Shortly she was back again, and this time the motions of her upper body seems to be a little more constrained.
+
+By the time Amalita had come around to the hatch that opened downward from the ceiling of the lounge, Abdul was already there. He was down to his underpants. They were the skimpy European "bikini" style. The white satin contrasted nicely with the muscular ebony-black skin. Amalita floated up under Abdul and grabbed him firmly by his naked waist.
+
+"Here, let me give you a hand with your suit," she said, her long, ballet-trained legs and feet locked firmly in the handholds at the lounge door.
+
+"Hey! Cut it out!" Abdul yelled.
+
+"I'm _just_ trying to help," Amalita replied sweetly.
+
+"I'll bet. I know you oversexed Harvard boards. Always trying to find some excuse to paw an MIT engineer. Leggo. I'm big enough to get dressed by myself."
+
+Despite Abdul's protests, Amalita held onto his muscular waist until he got the legs of his wet suit on. Then pushing his arms into his sleeves as if she were dressing a little child, she helped him dress the rest of the way. Her attention bruised Abdul's ego a little, but Amalita didn't care; they were going home, and it was time for a little fun. Grinning from ear to ear, she shot up the passageway to check out the top tank. The hatch for this tank was under the star image table.
+
+Amalita floated over to the table and glanced down for a moment at the image of Dragon's Egg on the white frosted surface. There was now more to see on the star as the cheela technology became capable of constructing structures large enough to be seen from space. The Bright's Heaven jump loop was now visible below. It was already slinging payloads into space. Within ten minutes or so, a space fountain should be pointing straight up into space from the top of the East Pole mountains off on the horizon. Just before she flicked off the image, Amalita saw the Polar Orbiting Space Station of the cheela flash by below like a white-hot tracer bullet.

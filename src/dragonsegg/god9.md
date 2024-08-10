@@ -1,0 +1,28 @@
+## 08:00:44 GMT SUNDAY 19 JUNE 2050
+Bright's-Second had his suspicions verified. For when Bright's Messenger reached its point of maximum distance from Egg, it did not just pass in front of the Six, but instead grabbed East, Sex, Crust, West, Food, then finally Sky, and flung them down at Egg.
+
+The dozen turns in which the sky was torn asunder by Bright's Messenger throwing down the false gods from the sky was a busy time for Bright's Temple. At first, the cheela were sure that the Six were going to fall and hit Egg, destroying the wicked cheela that had abandoned Bright and had turned to false gods. For a while, even Bright's-Second was worried about that possibility. But a few dozen turns staring through the astrologer sticks assured him that although the falling stars would come close to Egg, they would only come as close as Bright's Messenger did. When the High Priest passed Bright's-Second's assurance of salvation on to the cheela, the crowds flocked to Bright's Temple.
+
+Near the end of the fourth great of turns after their fall, the six star-specks and Bright's Messenger drew closer, and moved more rapidly through the black heavens. Bright's-Second spent almost his entire time out at the astrologer sticks, writing down the numbers as fast as he could determine them. After he was certain of the orbits, he could spend some time carefully drawing them out and trying to understand them, but right now his full time was spent collecting the numbers as the seven bright objects moved through the heavens. He determined that Bright's Messenger had been affected by the interaction---not much, but an easily measurable change had been made in its highly elliptical orbit. He hated to do it, but he put a novice in charge of taking the numbers, and went off to draw up the new orbits of the fallen Six.
+
+"Strange," thought Bright's-Second, "they all seem to be heading for the same place above Egg. Perhaps they will hit each other and destroy themselves, as an example to the cheela not to worship false gods."
+
+Suddenly he had another thought, and shortly he was staring at still another egg-shaped orbit---that of Bright's Messenger with its new numbers used.
+
+"Bright's Messenger is going to be at the same point at the same time," he said to himself. "What is going to happen? It would be to Bright's glory if I could predict the outcome for the people, so they could be properly prepared."
+
+Bright's-Second tried as hard as he could to extract the most from the inadequate numbers that came from the crude astrologer sticks, but all he could tell was that Bright's Messenger and the six fallen ones were going to be near the same place at the same time.
+
+"They look as if they will all collide and be destroyed," Bright's-Second reported to the High Priest. "But it could be that Bright's Messenger will toss the other six off into different directions again, perhaps back up to where they were. I simply don't know what to predict."
+
+"It would be so much better if we knew," she replied, "but perhaps Bright is testing us again."
+
+Bright's-First was wise in the ways of religious leaders and only told her people that they were all to be praying, with their eyes to the eastern skies, when the time came for the stars to meet.
+
+Inexorably the seven spots in the sky drew closer together, and now everyone could see the irregular flaring in intensity as if they were glaring at each other. Bright's-Second was busy at the astrologer sticks. He had the novices working in teams, one for each of the seven lights. They often got in each other's way and a number or two was lost or misread, but he could take care of those later. He himself, with his practiced eyes, was estimating the relative distance between the points of light, while the novices were measuring with respect to the background stars. It was now obvious that they were not all going to meet at exactly the same place. Then, as the cheela watched, they saw Bright's Messenger swing by Sex, West, Food, East, Crust, and finally Sky, then continue on its accustomed path back into the blackness, leaving the six standing still in the sky!
+
+A keening vibration shook the crust as a great of greats of cheela treads chattered in fear and awe at the amazing sight. Where before, the six stars had risen and set in the skies each turn as the other stars and Bright's Messenger had done, they now were stationary. They neither rose nor set, but slowly rotated once a turn around a point above the east magnetic pole.
+
+The High Priest took full advantage of the extraordinary sight, and at the next turn proclaimed that the new formation was composed of six of Bright's eyes, brought down to Egg by Bright's Messenger to vigilantly watch over the cheela to see if they were daring to worship false gods again. The proclamation was accepted by the cheela, and the pantheistic temples were reduced to rubble by frightened mobs cowering under the constant glare of the Six Eyes of Bright.
+
+The new formation in the sky bothered Bright's-Second. It was counter to everything he had ever known about the behavior of the many lights in the sky. Having been a trooper chaplain during the last northern campaign against the barbarians, he had marched with the troopers across the equator to destroy a barbarian town. There, through breaks in the smoke cover, he had seen some tiny stars that rotated in small circles over the north pole, as Bright did over the south pole. He could understand a star being motionless in the sky if it were near a pole in the sky, but this was the first time an east or west magnetic pole had acted like the north and south poles.

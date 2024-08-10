@@ -1,0 +1,2 @@
+## 22:30:16.3 GMT MONDAY 20 JUNE 2050
+"Ouch!" Amalita cried as she rebounded from the window. Her hand went to her breast, but the sharp hurt was gone. "Reverse Cooper's droop?" she thought to herself. She then turned to watch Pierre, her mouth still forming the automatic count, "...One-thousand-seven..."

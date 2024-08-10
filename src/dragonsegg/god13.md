@@ -1,0 +1,16 @@
+## 09:50:34 GMT SUNDAY 19 JUNE 2050
+After exiting the tanks, the crew of Dragon Slayer gathered on the main console deck. The outside metallic micrometeorite shields had been pulled back from the six darkened viewing ports and they stared out. It was a dizzying sight, although they could feel no motion.
+
+They were in a synchronous orbit 400 km out from the neutron star. To counteract the 41-million-gee gravitational pull from the nearby star, their spacecraft had to orbit about the star at five revolutions per second. Yet despite the rapid rotation they felt nothing because Dragon Slayer was stabilized to inertial space and did not try to keep a port facing the neutron star. It was good that it did not, for the centrifugal force in a spacecraft spinning around at five revolutions per second would have been enough to crush their bodies to a pulp against the outer bulkhead.
+
+Since the spacecraft was orbiting but not spinning, this meant that the large, brilliant image of the neutron star flashed by each of the viewing ports five times a second, shining a flickering white glow on the walls of the central deck. Also visible through the ports was a ring of six, large, red ultra-dense asteroids only 200 meters away. They too whirled about the spacecraft five times a second, their glow alternating with the flashes from the distant neutron star.
+
+Seiko took in the scene at one view port with a quick professional glance. She then shut her eyes and went limp in the air. Her arms and legs were stretched out in all directions.
+
+"What's the matter!" Cesar exclaimed, looking over at her with concern.
+
+Seiko slowly opened one eye. "Don't be concerned, Doctor Wong, I was merely checking the tidal compensation," she said, slightly annoyed at being interrupted. "At 406 kilometers from the neutron star, the tidal gravity gradient should be 101 gees per meter. Even though my middle is in free-fall, my arms, legs and head try to go in different orbits. My feet are one meter closer to the star and should feel a pull of 202 gees. My head is one meter further than my middle and should also feel a pull of 202 gees, while my arms should feel a push of 101 gees.
+
+"The six compensator masses also make tidal forces of the same magnitude, only they make tides of the opposite sign. I was just trying to see how accurately the two tides were compensating by using my hands and feet as crude accelerometers. I am surprised at how small the residual tide is. Only very near the hull can I sense any forces on my arms as the ship rotates." She closed her eyes again and continued to feel the play of the minute gravitational tugs coming twenty times a second on her hands and feet as the compensator masses and the neutron star whirled about the ship five times a second, rotating their four-lobed gravity pattern about the nonspinning ship.
+
+After watching for some minutes, the crew began to be bothered by the flickering of the lights. By common consent, the metal shields were activated and slid back over the viewing ports, returning the main console room to its steady internal illumination. The crew then turned to their job, which was to examine the neutron star with instruments a lot more sophisticated than a naked human eye.

@@ -1,0 +1,12 @@
+## 07:02:06 GMT TUESDAY 21 JUNE 2050
+Now that things had settled down into a routine, Qui-Qui was only supposed to check in on the communicator every dozen turns. Hohmann-Transfer was in a meeting when she called this time, so Shannon-Capacity transferred the call to Cliff-Web.
+
+"We just had another hatchling last turn," said Qui-Qui. "That makes eleven now. Pretty soon Heavy-Egg can start education classes to train the junior engineers you need. Zero-Gauss is finally resigned to the fact that she had to give up working on her research notes to tend eggs. She still thinks it's obscene hatching her own eggs, but being a genetics expert she understands the importance of having as diverse a gene pool as possible, so she does 'her duty' as she calls it and still lays eggs as well as hatches them."
+
+Qui-Qui giggled before she continued with her next sentence. She still felt embarrassed using the obscene words in polite conversation. "She is also keeping track of the 'mothers' of the hatchlings, so we can avoid inbreeding as much as possible." She giggled again. "No problem identifying Speckle-Top's 'children.' Her speckles sure breed true."
+
+"Speckle-Top is a genius with the animals. She can just look at the animals and tell how they are feeling. The herds are multiplying rapidly, and Zero-Gauss finally let us have some fresh meat four turns ago. I'm getting pretty good at tending the plants. The grounds of the Inner Eye Institute are now full of fruit and nut bearers, and I am starting wild patches outside the city."
+
+"I've got some good news, too," said Cliff-Web after the long wait. "We were finally able to establish contact with the rejuvenation robot at the West Pole Rejuvenation Center by sending commands with a tight X-ray beam from West Pole Space Station. The robot has been unable to restore more than one enzyme machine, but within five greats there should be enough enzyme collected for the rejuvenation of a male or a small female."
+
+"Wonderful!" exclaimed Qui-Qui. "I can take Heavy-Egg there and get his sight back. Then you'll have someone who can tell you what is wrong with the gravity catapults, and I'll have someone to help share the burden of tending plants."

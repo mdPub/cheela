@@ -1,0 +1,6 @@
+## 10:15:02 GMT SATURDAY 18 JUNE 2050
+One after the other, new stars began to blossom in the sky. The cheela in Bright's Heaven continued to multiply and prosper, but their very numbers began to strain the ability of the crust to support them. Decadence set in and soon the needle trooper commanders despaired of ever adequately defending the expanding frontier with the flabby, ill-fed recruits they were sent to use.
+
+A fifth new light grew in the sky during the time the barbarians made inroads from the east. Alarmed, by both the losses and the new stars, the cheela rose under the leadership of a self-proclaimed General of the Clans and drove the barbarians back. The spasm of energy subsided---the General abandoned his post and went off to hatch eggs---and the cheela slipped back into their slow decline.
+
+Yet another star blazed in the heavens, and this time the flurry of worry and religious concern was brief. Bright's-First still worshiped daily in Bright's Temple, but few came to worship with him. Those who were still in need of a god had found six of them in a new religion---a popular pantheistic religion that had a little bit of everything for everybody, including religiously inspired orgies that took place every time Bright's Messenger passed near "The Six"---which represented East, West, Sky, Crust, Food, and Sex.
